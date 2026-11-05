@@ -8,10 +8,10 @@ My favorite series is **Stranger Things**. It is a science-fiction and horror se
 : So i love this series because it has a interesting story line and also their amazing charaters.
 
 ####**Favorite Characters**
-1.Eleven
-2.Mike Wheeler
-3.Dustin Henderson
-4.Max Mayfield
+1. Eleven
+2. Mike Wheeler
+3. Dustin Henderson
+4. Max Mayfield
 
 
 **Favorite Quote/Line**
